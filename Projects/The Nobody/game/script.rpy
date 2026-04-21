@@ -36,7 +36,7 @@ label start:
 
     "I briefly meander through my apartment, before sitting in front of my door to change out my prosthetic legs. I would absolutely scratch the fuck out of the floor if I wore my taloned ones in here."
 
-
+    "Out the door, onto the overcast streets of District 12."
     
 
     
